@@ -1,1 +1,0 @@
-# nirzgcfck.github.io
